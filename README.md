@@ -27,7 +27,7 @@ This dataset is built to:
 
 ## Related Resources
 
-• Full Report: [Wireless Sensor Network Market](https://www.nextmsc.com/report/neuropathic-pain-market-hc3575)
+• Full Report: [Wireless Sensor Network Market](https://www.nextmsc.com/report/wireless-sensor-network-market-3546)
 
 • Press Release: Wireless Sensor Network Market Trends and Forecasts →
 
